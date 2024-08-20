@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on juegos
 - 📫 How to reach me DM
 - 😄 Pronouns: absolute unit / gaming
-- ⚡ Fun fact: Un sistema linealmente dependiente no es linealmente independiente
+- ⚡ Fun fact: Nose
 
 <!---
 Sebavegs2004/Sebavegs2004 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
