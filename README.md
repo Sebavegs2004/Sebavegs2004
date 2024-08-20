@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sebavegs2004
 - 👀 I’m interested in tanques
-- 🌱 I’m currently learning pitones
+- 🌱 I’m currently learning piton
 - 💞️ I’m looking to collaborate on juegos
 - 📫 How to reach me DM
 - 😄 Pronouns: absolute unit / gaming
